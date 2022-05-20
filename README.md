@@ -1,4 +1,4 @@
-- 👋 Olá, eu sou o @mamacoauimaue
+- 👋 Olá, eu sou o Jão Pedra de Crack dos Santos
 - 👀 Estou interessado em nada
 - 🌱 Atualmente estou aprendendo nada
 - 💞️ Estou a procura de colaborar
